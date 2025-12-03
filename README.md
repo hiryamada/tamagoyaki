@@ -1,3 +1,3 @@
 # tamagoyaki
 
-塩
+砂糖
